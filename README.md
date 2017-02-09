@@ -1,6 +1,6 @@
 # What people do we want to respect us?
 Sometimes It's not *quite* obvious why people are trying to show yourself to someone more **"cooler"** then to others. Let's make it a little bit more explicit. 
-##### I create some structure to this topic to make it more ordered and clear:
+##### I create some structure to this topic to make it more ordered and clear. Each subtopic is equal to a question:
 * **Is** this relevant to all people?
 * **Why** do we need to be respected?
 * **When** do we pay attention to others people's thoughts of us and when we don't?
