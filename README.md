@@ -19,5 +19,5 @@ Most scientists think culture caused it. When we are born, we are almost the sam
 > *So, even now, when there are more than 7bn people, I assume, we are monkey in the roots of our mind and behavior.*
 
 
-## **When?**
+## **Why?**
 
