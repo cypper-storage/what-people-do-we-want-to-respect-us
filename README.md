@@ -29,10 +29,10 @@ It can be true only in our days *(of course if you think about mental component)
     
 ## **When?**
 
-> It would be easy to say all time, every second. Is it TRUE?
+> *It would be easy to say all time, every second. Is it TRUE?*
 
 The majority of people don't care how they look, eat, breathe when they are around persons, that they used to know for a long time and also when they are around complete strangers (not working for all people, because i think, they have a hidden hope that stranger will bring,give,become something good for them).
-> It seems we eliminate every posible thought. Then when do we care?
+> *It seems we eliminate every posible thought. Then when do we care?*
 
 Easy, when we are surrouded by `'this'` people. What people `'this'` are I'll tell you in about a few seconds.
 
