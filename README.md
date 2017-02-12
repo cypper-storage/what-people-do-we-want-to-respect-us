@@ -21,3 +21,20 @@ Most scientists think culture caused it. When we are born, we are almost the sam
 
 ## **Why?**
 
+It's the simple question.
+> *As better we are, as better people surround us.*
+
+It can be true only in our days *(of course if you think about mental component)*. A years ago people didn't care how clever their partner are. They could choose someone by their body shapes or how they smell or what they do or something like that.
+    So, you assume that if you have respect you are better? Yes, if somebody treats you arrogantly or enviously or *respectfully*, that **points out** they respect you, at least they think you are *better*.
+    
+## **When?**
+
+> It would be easy to say all time, every second. Is it TRUE?
+
+The majority of people don't care how they look, eat, breathe when they are around persons, that they used to know for a long time and also when they are around complete strangers (not working for all people, because i think, they have a hidden hope that stranger will bring,give,become something good for them).
+> It seems we eliminate every posible thought. Then when do we care?
+
+Easy, when we are surrouded by `'this'` people. What people `'this'` are I'll tell you in about a few seconds.
+
+## **What?**
+
